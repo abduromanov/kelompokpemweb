@@ -5,4 +5,4 @@ Achmad Arief S
 Aulia Dyah Ayu
 Hafiz Abdurrahman S
 Maulida Gusnina
-Mazdaliah Zainal
+Masdaliah Zainal
